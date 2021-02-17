@@ -1,2 +1,0 @@
-# ala.github.io
-Ptoject
